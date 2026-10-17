@@ -10,3 +10,6 @@ Rangkaian INTRIVIA sangat asik dan sangat insightful apa lagi untuk kami para ma
 
 ## Kesan Pesan Cluster [15] Sejauh Ini 
 Cluster 15 sangat asik dan sangat mendukung para anggota baru di cluster 15.
+
+## Harapan Kuliah 
+Mendapatkan IPK yang bagus, mengikuti beberapa organisasi untuk menambahkan experience dan mengasah skill.
